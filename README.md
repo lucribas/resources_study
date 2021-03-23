@@ -1,8 +1,11 @@
 # resources_study
 
 https://b-ok.lat/
+
 https://www.pdfdrive.com/
+
 https://allitbooks.net/
+https://www.allitebooks.in/
 
 
 
